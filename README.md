@@ -10,7 +10,7 @@ _Big generative ai hater!!_
 \
 \
 _**Wanna chat?**_\
-[![Discord](https://img.shields.io/badge/Discord-Add%20Me-5865F2?logo=discord&logoColor=white)](https://discord.com/users/sueee.) \
+[![Discord](https://img.shields.io/badge/Discord-Add%20Me-5865F2?logo=discord&logoColor=white)](https://discord.com/users/sueee.) 
 
 \
 \
