@@ -11,6 +11,10 @@ _Big generative ai hater!!_
 \
 _**Wanna chat?**_\
 [![Discord](https://img.shields.io/badge/Discord-Add%20Me-5865F2?logo=discord&logoColor=white)](https://discord.com/users/sueee.) \
+
 \
 \
 ![Cat](https://media.tenor.com/BuSEbkm9aAIAAAAi/hi-otag.gif)
+
+
+<!-- https://sueeeee3.itch.io/ -->
